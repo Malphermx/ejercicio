@@ -1,2 +1,3 @@
 # ejercicio
-Maria Guadalupe Mendez Garcia
+miguel angel pozadas herrera 
+Maria Guadalupe Mendez Gracia 
